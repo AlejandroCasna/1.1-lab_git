@@ -1,2 +1,3 @@
  Hola me llamo Alejandro tengo 28 años, soy nacido en Brasil. antes de empezar el botcamp me dedicaba a pintura y alta decoracion y entrenador de voleybol.
 experiencia en tecnologia no tenia hasta comenzar el prework. comence en ironhack por recomendacion de una compañera, mi meta a medio plazo es tener una mejor calidad de vida laboral. pretendo poder integrarme en la rama tecnologica para poder vivir de ello. aun no tengo claro mi objetivo profesional ni a que empresa valorare trabajar.
+
